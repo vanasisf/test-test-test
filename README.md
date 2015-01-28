@@ -1,2 +1,2 @@
-# ![logo](http://oi59.tinypic.com/2cg0n89.jpg) WOWSource
+# ![logo](http://oi58.tinypic.com/2a5jc05.jpg) WOWSource
 
